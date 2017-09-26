@@ -16,4 +16,4 @@ Somos dueños del código, y todos los derechos sobre las aplicaciones, usted co
 
 Cambios
 
-Fast Battery Charger puede modificar esta Política de Privacidad de vez en cuando, a su sola discreción. Si realizamos cambios en la Política de privacidad, le notificaremos publicando un anuncio en el sitio web de Fast Battery Charger. Contacto Para ponerse en contacto con Fast Battery Charger en temas relacionados con productos, nuestra política de privacidad o en otro caso, use robzozulya@gmail.com
+Fast Battery Charger puede modificar esta Política de Privacidad de vez en cuando, a su sola discreción. Si realizamos cambios en la Política de privacidad, le notificaremos publicando un anuncio en el sitio web de Fast Battery Charger. Contacto Para ponerse en contacto con Fast Battery Charger en temas relacionados con productos, nuestra política de privacidad o en otro caso, use robzozulya@gmail.com.
